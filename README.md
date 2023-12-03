@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rcancedda
+- 👀 I’m interested in business analysis and business management
+- 🌱 I’m currently learning data analysis
+- 📫 How to reach me -> https://www.linkedin.com/in/rossella-cancedda-b14625156/
